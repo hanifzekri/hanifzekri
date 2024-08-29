@@ -1,5 +1,5 @@
 
-Fast Learner, flexible, goal seeker, web developer and digital marketing enthusiasm, seeking exciting opportunities to leverage my skills in cutting-edge projects and collaborative teams.Fast Learner, flexible, goal seeker, web developer and digital marketing enthusiasm, seeking exciting opportunities to leverage my skills in cutting-edge projects and collaborative teams.
+Fast Learner, flexible, goal seeker, web developer and digital marketing enthusiasm, seeking exciting opportunities to leverage my skills in cutting-edge projects and collaborative teams.
 
 ---
 
